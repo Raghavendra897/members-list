@@ -21,7 +21,8 @@ Also don't be a cop-out by saying something like "I am happy/looking forward to 
 **Name**:  Raghavendra J P     
 **SRN**: PES1201802162  
 **Link to Profile**: [Raghavendra897](https://github.com/Raghavendra897)    
-**About Me**: Unicyclist. Intrsted
+**About Me**: love creating new things from scratch and learning at the same time.
+
 
 **Name**:  Shamanth K M        
 **SRN**: PES1201901400    
